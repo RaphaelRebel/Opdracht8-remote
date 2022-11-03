@@ -1,2 +1,2 @@
 # Opdracht8-remote
-Het hart van een blauwe vinvis is zo groot dat een klein kind door zijn aderen zou kunnen zwemmen
+Wist je dat dat een varken fysiek niet in staat is om naar de lucht te kijken?
